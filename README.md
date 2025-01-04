@@ -17,4 +17,6 @@ Don’t get too caught up in metrics like GDP or the perceived value of working 
 Stay Connected and Keep Growing
 Growth doesn’t happen in isolation. Stay connected with like-minded people who inspire and challenge you. Learn from those who are ahead of you, and share your journey with those who are just starting out. Together, we can create a supportive ecosystem where everyone thrives.
 If you’re ready to grow, grab every chance that comes your way, and believe in your potential, success is just a matter of time. Let’s continue this journey together. Stay consistent, stay focused, and stay connected.
+
+
 — Senth Vyra
