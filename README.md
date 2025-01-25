@@ -2,7 +2,6 @@
 Senth Vyra 2025
 
 Newsletter
-
 Is the Field Saturated? Let’s Talk About Growth and Opportunities
 
 In recent times, I’ve noticed many juniors and peers expressing concerns about whether a particular field is saturated. Let me start by saying this: I strongly disagree with the idea of saturation being an insurmountable obstacle. The truth is, no matter how competitive a field seems, there’s always room for those who are willing to grow, adapt, and put in consistent effort.
