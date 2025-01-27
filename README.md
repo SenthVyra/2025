@@ -1,6 +1,7 @@
 # 2025 10
 Senth Vyra 2025
 
+
 Newsletter
 
 Is the Field Saturated? Let’s Talk About Growth and Opportunities
