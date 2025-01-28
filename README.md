@@ -12,6 +12,7 @@ Focus and Consistency Are Key
 If you’re a junior or someone starting in any field, my first advice is to identify a skill that resonates with your interests and strengths. Target that skill and dedicate yourself to mastering it. Growth doesn’t happen overnight, but with focused and consistent effort, you’ll find yourself improving steadily.
 It’s easy to get distracted by the noise around you – whether it’s trends, competition, or doubts about market conditions. However, what truly matters is your commitment to building expertise. When you focus on being the best version of yourself in your chosen area, opportunities will naturally come your way.
 Seize Every Opportunity
+
 Don’t wait for the “perfect” opportunity. Often, the opportunities that come your way, no matter how small they seem, are stepping stones to greater things. By embracing challenges and making the most of what you have, you’ll develop resilience and skills that will set you apart.
 Remember, growth is a journey. If you can grow where you are, you’ll thrive anywhere. Blaming external factors, such as saturation or economic conditions, won’t help. Instead, take ownership of your path. If you can’t make an impact where you are, chances are, you’ll face the same challenges elsewhere – even abroad.
 It’s About You, Not the Market
