@@ -10,6 +10,7 @@ In recent times, I’ve noticed many juniors and peers expressing concerns about
 Focus and Consistency Are Key
 
 If you’re a junior or someone starting in any field, my first advice is to identify a skill that resonates with your interests and strengths. Target that skill and dedicate yourself to mastering it. Growth doesn’t happen overnight, but with focused and consistent effort, you’ll find yourself improving steadily.
+
 It’s easy to get distracted by the noise around you – whether it’s trends, competition, or doubts about market conditions. However, what truly matters is your commitment to building expertise. When you focus on being the best version of yourself in your chosen area, opportunities will naturally come your way.
 Seize Every Opportunity
 
