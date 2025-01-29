@@ -15,6 +15,7 @@ It’s easy to get distracted by the noise around you – whether it’s trends,
 Seize Every Opportunity
 
 Don’t wait for the “perfect” opportunity. Often, the opportunities that come your way, no matter how small they seem, are stepping stones to greater things. By embracing challenges and making the most of what you have, you’ll develop resilience and skills that will set you apart.
+
 Remember, growth is a journey. If you can grow where you are, you’ll thrive anywhere. Blaming external factors, such as saturation or economic conditions, won’t help. Instead, take ownership of your path. If you can’t make an impact where you are, chances are, you’ll face the same challenges elsewhere – even abroad.
 It’s About You, Not the Market
 
